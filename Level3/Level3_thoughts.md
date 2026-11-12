@@ -1,0 +1,1 @@
+Each individual is different, depending on their background. For me, practising essay-type questions worked well - especially, in re-doing CFAI mock exams. On average, it's useful to target 70% accuracy for end-of-chapter questions. And then mock exams from [Mark Meldrum](https://www.markmeldrum.com/) helped for additional practice.
